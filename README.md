@@ -188,6 +188,7 @@ NCERT Solutions for Class 10 Science Chapter 12
 NCERT Solutions for Class 10 Science Chapter 13
 NCERT Solutions for Class 10 Science Chapter 14
 NCERT Solutions for Class 10 Science Chapter 15
+
 NCERT Solutions for Class 10 Science Chapter 16
 FREE RESOURCES
 RD Sharma Class 12 Solutions RD Sharma Class 11
@@ -200,3 +201,4 @@ NCERT Solutions for Class 9
 NCERT Solutions for Class 8
 NCERT Solutions for Class 7
 NCERT Solutions for Class 6
+Thx To be continued 
